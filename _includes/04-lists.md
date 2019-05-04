@@ -1,0 +1,6 @@
+- doing science
+  - in particular plant developmental genetics
+- reading
+- taking care of my family
+- sports
+  - table tennis
