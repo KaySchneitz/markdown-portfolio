@@ -1,1 +1,1 @@
-[Github] (https://github.com/KaySchneitz)
+[Github] (http://github.com/KaySchneitz)
