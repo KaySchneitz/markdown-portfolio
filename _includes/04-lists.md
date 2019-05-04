@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+- doing science
+  - in particular plant developmental genetics
+- reading
+- taking care of my family
+- sports
+  - table tennis
